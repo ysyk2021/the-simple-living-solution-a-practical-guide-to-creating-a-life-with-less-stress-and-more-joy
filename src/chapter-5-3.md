@@ -1,5 +1,4 @@
-Chapter 4: Mindfulness and Gratitude: Techniques for Staying Present and Appreciating the Moment
-================================================================================================
+# Techniques for Staying Present and Appreciating the Moment
 
 In this chapter, we will explore the concepts of mindfulness and gratitude and how they can contribute to a more fulfilling and joyful existence. We will provide practical techniques for cultivating mindfulness and gratitude in daily life.
 

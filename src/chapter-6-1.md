@@ -1,5 +1,4 @@
-Chapter 5: Self-Care and Balance: Prioritizing Self-Care in Daily Routines
-==========================================================================
+# Prioritizing Self-Care in Daily Routines
 
 In this chapter, we will explore the importance of prioritizing self-care in daily routines as a key component of simple living. We will provide practical tips for ways to prioritize self-care and promote overall well-being.
 

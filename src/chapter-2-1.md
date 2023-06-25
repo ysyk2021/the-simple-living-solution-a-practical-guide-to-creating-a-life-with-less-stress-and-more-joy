@@ -1,5 +1,4 @@
-Chapter 1: Defining Simple Living: What is Simple Living?
-=========================================================
+# What is Simple Living?
 
 In this chapter, we will define the concept of simple living and explore its benefits. We will also discuss how simple living can be practiced in daily life.
 

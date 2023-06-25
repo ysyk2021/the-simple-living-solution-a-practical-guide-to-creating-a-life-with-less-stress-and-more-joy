@@ -1,4 +1,4 @@
-Introduction: Purpose of the Book
+Purpose of the Book
 =================================
 
 The purpose of this book is to provide a practical guide for creating a life with less stress and more joy through simple living. We will explore various techniques and strategies for simplifying daily routines, decluttering living spaces, and fostering mindfulness and gratitude.

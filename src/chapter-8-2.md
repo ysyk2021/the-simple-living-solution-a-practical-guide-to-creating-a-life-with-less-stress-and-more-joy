@@ -1,5 +1,4 @@
-Chapter 7: Simple Living and Sustainability: Reducing Waste and Environmental Impact
-====================================================================================
+# Reducing Waste and Environmental Impact
 
 Living simply not only benefits our own well-being but also has a positive impact on the environment. By reducing waste and minimizing our carbon footprint, we can contribute to a more sustainable future for ourselves and generations to come.
 

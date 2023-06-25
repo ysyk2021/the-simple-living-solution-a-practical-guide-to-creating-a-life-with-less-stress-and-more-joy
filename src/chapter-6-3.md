@@ -1,5 +1,4 @@
-Chapter 5: Self-Care and Balance: Creating Healthy Habits for a Simpler Life
-============================================================================
+# Creating Healthy Habits for a Simpler Life
 
 Creating healthy habits is key to achieving balance and living a simpler life. In this chapter, we'll explore strategies for creating healthy habits that promote self-care and reduce stress.
 

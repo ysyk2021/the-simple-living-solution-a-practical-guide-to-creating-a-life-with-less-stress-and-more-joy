@@ -1,5 +1,4 @@
-Chapter 4: Mindfulness and Gratitude: Cultivating Gratitude in Everyday Life
-============================================================================
+# Cultivating Gratitude in Everyday Life
 
 Practicing mindfulness and gratitude can help us appreciate the simple things in life and find joy in everyday moments. By cultivating a mindset of gratitude, we can reduce stress and anxiety, improve our relationships, and increase our overall sense of well-being.
 

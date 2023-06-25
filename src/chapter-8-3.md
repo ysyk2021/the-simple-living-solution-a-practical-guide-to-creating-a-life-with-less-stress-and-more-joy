@@ -1,5 +1,4 @@
-Chapter 7: Simple Living and Sustainability: Supporting Local and Ethical Businesses
-====================================================================================
+# Supporting Local and Ethical Businesses
 
 In this chapter, we will explore the importance of supporting local and ethical businesses as a key component of simple living and sustainability. We will provide practical tips for ways to support local and ethical businesses in daily life.
 

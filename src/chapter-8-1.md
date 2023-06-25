@@ -1,5 +1,4 @@
-Chapter 7: Simple Living and Sustainability: Incorporating Sustainability into Simple Living Practices
-======================================================================================================
+# Incorporating Sustainability into Simple Living Practices
 
 Living simply can also promote sustainability by reducing waste, conserving resources, and promoting mindful consumption. In this chapter, we'll explore strategies for incorporating sustainability into simple living practices.
 
