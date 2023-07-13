@@ -1,4 +1,4 @@
-Conclusion: Summary of Key Points
+Summary of Key Points
 =================================
 
 In this book, we have explored practical strategies for creating a life with less stress and more joy. We have discussed the benefits of adopting a minimalist lifestyle, effective techniques for decluttering and organizing one's home, the importance of mindfulness and gratitude, and strategies for avoiding clutter in the future.
