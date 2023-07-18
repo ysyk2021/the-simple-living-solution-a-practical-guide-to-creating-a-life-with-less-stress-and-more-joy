@@ -6,5 +6,4 @@ Through chapters focused on self-care, financial freedom, and community building
 
 Whether you're feeling burnt out, seeking greater purpose and meaning, or simply looking for ways to simplify your daily routine, "The Simple Living Solution" is your guide to creating a life with less stress and more joy. It's time to reclaim your time, focus on what truly matters, and live a life that brings you peace and happiness.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
