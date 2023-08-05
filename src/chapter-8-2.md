@@ -19,15 +19,15 @@ Adopting a Zero-Waste Mindset
 
 Reducing waste requires a shift in mindset and lifestyle choices. Embrace the following principles to adopt a zero-waste mindset:
 
-### 1. **Refuse**: Say no to unnecessary items, excessive packaging, and single-use products. Prioritize reusable alternatives and opt for durable, long-lasting goods.
+1. **Refuse**: Say no to unnecessary items, excessive packaging, and single-use products. Prioritize reusable alternatives and opt for durable, long-lasting goods.
 
-### 2. **Reduce**: Minimize your consumption and live more intentionally. Only purchase what you truly need and focus on experiences rather than material possessions.
+2. **Reduce**: Minimize your consumption and live more intentionally. Only purchase what you truly need and focus on experiences rather than material possessions.
 
-### 3. **Reuse**: Give items a second life by reusing them instead of discarding them. Embrace creativity and find new purposes for old objects.
+3. **Reuse**: Give items a second life by reusing them instead of discarding them. Embrace creativity and find new purposes for old objects.
 
-### 4. **Recycle**: If reuse isn't possible, ensure proper recycling of materials like paper, plastic, glass, and metal. Familiarize yourself with local recycling guidelines and support businesses that prioritize recycling practices.
+4. **Recycle**: If reuse isn't possible, ensure proper recycling of materials like paper, plastic, glass, and metal. Familiarize yourself with local recycling guidelines and support businesses that prioritize recycling practices.
 
-### 5. **Compost**: Composting organic waste reduces methane emissions from landfills and creates nutrient-rich soil. Start a composting system at home for food scraps and yard waste.
+5. **Compost**: Composting organic waste reduces methane emissions from landfills and creates nutrient-rich soil. Start a composting system at home for food scraps and yard waste.
 
 Practical Strategies for Waste Reduction
 ----------------------------------------

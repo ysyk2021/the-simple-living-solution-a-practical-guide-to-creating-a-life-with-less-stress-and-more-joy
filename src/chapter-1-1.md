@@ -42,4 +42,4 @@ We will address common obstacles and challenges that may arise on your simple li
 
 Finally, we will emphasize the importance of embracing simple living as a lifelong journey rather than a short-term fix. We will encourage you to cultivate self-compassion, practice ongoing self-reflection, and adapt your simple living practices as your life evolves. By continuously striving for simplicity, you can create a sustainable and fulfilling life with less stress and more joy.
 
-Throughout this book, we aim to provide practical guidance, insightful tips, and inspiring stories to support and motivate you on your simple living journey. By adopting the principles outlined in the following chapters, you can transform your life and discover the profound joy that comes from living with intention and embracing the beauty of simplicity.
+Throughout this book, we aim to provide practical guidance, insightful tips, and inspiring stories to support and motivate you on your simple living journey.
