@@ -1,5 +1,3 @@
-Supporting Local and Ethical Businesses
-==================================================
 
 In this chapter, we will explore the significance of supporting local and ethical businesses as part of embracing a simple living lifestyle. Discover the benefits of choosing local establishments and ethical practices, and learn how your consumer choices can make a positive impact on both the economy and the community.
 

@@ -1,5 +1,3 @@
-Chapter 6: Simple Living and Financial Freedom
-==============================================
 
 Living a simple life can also lead to greater financial freedom. By being mindful of our spending habits and focusing on experiences over material possessions, we can reduce our expenses and achieve greater financial stability.
 

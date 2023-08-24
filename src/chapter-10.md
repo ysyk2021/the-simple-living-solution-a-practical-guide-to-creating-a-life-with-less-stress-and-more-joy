@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we have explored the principles and practices of simple living, providing practical guidance for creating a life with less stress and more joy. We have discussed the importance of mindfulness, gratitude, self-care, balance, and community in achieving a simpler and more fulfilling existence.
 

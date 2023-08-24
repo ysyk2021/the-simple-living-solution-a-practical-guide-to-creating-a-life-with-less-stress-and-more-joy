@@ -1,5 +1,3 @@
-Overview of Simple Living
-====================================
 
 In this chapter, we will provide an overview of simple living -- a philosophy and approach that can help you create a life with less stress and more joy. By understanding the principles and benefits of simple living, you will gain insight into how it can transform your daily life and enhance your overall well-being.
 

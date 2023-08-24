@@ -1,5 +1,3 @@
-Chapter 7: Simple Living and Sustainability
-===========================================
 
 In this chapter, we will explore the relationship between simple living and sustainability. We will discuss ways to incorporate sustainability into simple living practices, reduce waste and environmental impact, and support local and ethical businesses.
 

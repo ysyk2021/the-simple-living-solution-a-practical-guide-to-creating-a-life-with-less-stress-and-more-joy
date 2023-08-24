@@ -1,5 +1,3 @@
-Cultivating Gratitude in Everyday Life
-=================================================
 
 In this chapter, we will explore the power of gratitude and how it can enhance your simple living journey. By cultivating gratitude in your everyday life, you can experience more joy, contentment, and a deeper appreciation for the present moment. Let's dive into some practical strategies to infuse gratitude into your daily routine.
 

@@ -1,5 +1,3 @@
-Chapter 8: Simple Living and Community
-======================================
 
 Living simply can also promote a sense of community and connection with others who share similar values. In this chapter, we'll explore strategies for building community through simple living.
 

@@ -1,5 +1,3 @@
-Connecting with Others Who Value Simplicity
-======================================================
 
 In this chapter, we will explore the importance of connecting with like-minded individuals who value simplicity. Discover the benefits of building a community of simplicity enthusiasts and learn practical strategies to find and nurture these connections in your life.
 

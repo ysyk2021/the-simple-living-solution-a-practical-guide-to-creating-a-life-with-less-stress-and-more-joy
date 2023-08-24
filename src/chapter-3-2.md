@@ -1,5 +1,3 @@
-How Minimalism Relates to Simple Living
-==================================================
 
 In this chapter, we will explore the deep connection between minimalism and simple living. While these two concepts share similar principles and goals, they each have their own unique focus. Understanding how minimalism relates to simple living will deepen your understanding of both philosophies and help you create a life with less stress and more joy.
 

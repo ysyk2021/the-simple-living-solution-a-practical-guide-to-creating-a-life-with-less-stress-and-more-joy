@@ -1,5 +1,3 @@
-Purpose of the Book
-==============================
 
 The purpose of this book is to provide a practical guide for creating a life with less stress and more joy through the principles of simple living. In today's fast-paced and consumer-driven world, many individuals find themselves feeling overwhelmed, exhausted, and disconnected from what truly brings them happiness.
 

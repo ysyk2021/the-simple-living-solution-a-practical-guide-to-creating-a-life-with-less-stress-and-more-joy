@@ -1,5 +1,3 @@
-Chapter 1: Defining Simple Living
-=================================
 
 In this chapter, we will define the concept of simple living and explore its benefits. We will also provide examples of how simple living can be practiced in daily life.
 

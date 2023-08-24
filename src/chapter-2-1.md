@@ -1,5 +1,3 @@
-What is Simple Living?
-=================================
 
 In this chapter, we will explore the concept of simple living and its significance in creating a life with less stress and more joy. We'll delve into the principles and practices that define a simple living lifestyle and discuss how it can enhance your well-being and overall satisfaction.
 

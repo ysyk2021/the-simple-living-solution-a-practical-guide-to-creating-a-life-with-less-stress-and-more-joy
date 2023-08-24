@@ -1,5 +1,3 @@
-Chapter 5: Self-Care and Balance
-================================
 
 In this chapter, we will explore the importance of self-care and balance in achieving a simpler and more fulfilling life. We will provide practical tips for prioritizing self-care in daily routines, balancing work and personal life, and creating healthy habits for a simpler life.
 

@@ -1,5 +1,3 @@
-Reducing Waste and Environmental Impact
-==================================================
 
 In this chapter, we will explore the importance of reducing waste and minimizing our environmental impact as an integral part of embracing a simple living lifestyle. Discover practical strategies and mindful practices that can help you create a more sustainable and eco-friendly existence.
 

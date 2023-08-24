@@ -1,5 +1,3 @@
-Chapter 3: Decluttering and Organizing
-======================================
 
 In this chapter, we will explore effective strategies for decluttering and organizing one's home. We will discuss practical techniques for simplifying living spaces, developing sustainable organizational habits, and avoiding clutter in the future.
 

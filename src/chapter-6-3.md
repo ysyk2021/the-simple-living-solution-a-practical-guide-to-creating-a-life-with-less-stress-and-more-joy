@@ -1,5 +1,3 @@
-Creating Healthy Habits for a Simpler Life
-======================================================
 
 In this chapter, we will explore the importance of creating healthy habits to simplify your life and promote overall well-being. By implementing positive routines and practices, you can reduce stress, increase productivity, and cultivate a sense of balance and joy. Let's dive into practical strategies for incorporating healthy habits into your daily life.
 

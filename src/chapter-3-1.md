@@ -1,5 +1,3 @@
-The Principles of Minimalism
-=======================================
 
 In this chapter, we will explore the principles of minimalism --- a lifestyle closely related to simple living. Minimalism is an intentional approach to simplifying your life by reducing excess, decluttering, and focusing on what truly matters. By understanding and practicing these principles, you can create a more meaningful and fulfilling existence.
 

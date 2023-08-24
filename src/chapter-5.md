@@ -1,5 +1,3 @@
-Chapter 4: Mindfulness and Gratitude
-====================================
 
 In this chapter, we will explore the importance of mindfulness and gratitude in creating a life with less stress and more joy. We will discuss techniques for developing mindfulness practices, cultivating gratitude in everyday life, and staying present and appreciating the moment.
 

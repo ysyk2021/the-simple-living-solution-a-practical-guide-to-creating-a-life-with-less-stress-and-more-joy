@@ -1,5 +1,3 @@
-Techniques for Staying Present and Appreciating the Moment
-=====================================================================
 
 In this chapter, we will explore various techniques and practices that can help you stay present and cultivate a deep appreciation for each moment. By embracing these techniques, you can enhance your ability to experience joy and fulfillment in the present.
 
